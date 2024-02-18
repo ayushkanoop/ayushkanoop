@@ -1,8 +1,11 @@
 - 👋 Hi, I’m @ayushkanoop
-- 👀 I’m interested in Discord
-- 🌱 I’m currently learning WLED
-- 📫 reach me With ayushkanoop@gmail.com
-- 
+- 📫 reach me With My E-mail
+- I Love To Code
 
-<!-In Discord!!!
---->
+Regards
+---------------------
+Ayush K Anoop
+ayushkanoop@gmail.com
+ayushkanoop@outlook.com
+solo.to/ayushkanoop
+	
